@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Pranav Ambre
+# Hi , I'm Pranav Ambre
 **IT Engineer || Python Programmer || Full Stcak Developer**
 
 Email Me 👉 ✉️ **pranavambre9579@gmail.com** For Collaboration/Project or Anything Else. 😊😊
